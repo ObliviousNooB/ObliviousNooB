@@ -1,4 +1,4 @@
-Hi, I’m @ObliviousNooB (Ananth)
+Hi, I’m @ObliviousBooB (Ananth)
 am currently a college student pursuing B-Tech in CSE.
 
 
